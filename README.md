@@ -1,4 +1,5 @@
 - 👋 Hi, I’m @YaleXin
+- 📤️ [me@yalexin.top](mailto:me@yalexin.top)
 
 
 
